@@ -1,1 +1,1 @@
-"Happy if the man who gains _wisdom_, and the man who gains _understanding_;"
+"Happy is the man who gains _wisdom_, and the man who gains _understanding_"
